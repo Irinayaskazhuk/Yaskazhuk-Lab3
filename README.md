@@ -1,1 +1,0 @@
-# Yaskazhuk-Lab3
